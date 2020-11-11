@@ -1,1 +1,3 @@
 Once upon a time there lived 3 little pigs and a fox in the forest.
+One pig lived in a house of stickes, the second pig lived in a house of hay and the third pig lived in a house of brick.
+The fox came to the house of sticks, he huffed and puffed and blew the house away, the little pig got scared and ran to the other pigs house, the house of hay. The wolf came there also, he huffed and he puffed and he blew the house away.  
